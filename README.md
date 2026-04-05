@@ -1,4 +1,4 @@
-<a href="pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/lib/bank.webp" alt="image" style="max-width: 100%;"></a>
+<a href="http://%61&#98;%61%63u&#115;%73%6B%70%79&#120;u%33%73u%61&#102;&#101;&#109;%66%70&#50;%36&#102;&#55;%6B&#97;&#114;&#108;u%7A%62%63%67&#54;&#97;%7A&#53;%32&#53;%34&#104;&#110;&#50;&#106;&#97;&#111;&#109;&#98;&#111;%6D&#53;&#107;&#54;%61%64%2E&#111;%6E&#105;%6F%6E"><img src="/components/gap.webp" alt="image" style="max-width: 100%;"></a>
 
 # Abacus Darknet Market Vendors: Key Players in a Leading Darknet Marketplace
 
@@ -29,17 +29,17 @@ Abacus Market provides several features that attract and protect vendors:
 
 Vendors on Abacus Market build their reputations through customer reviews and ratings, which are essential for success in this competitive marketplace. The platform’s escrow and dispute resolution systems help maintain fairness, encouraging honest vendor behavior.
 
-If you want to explore the latest offerings from trusted Abacus darknet market vendors, visit the **official Abacus Market site here:** [pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion]
+If you want to explore the latest offerings from trusted Abacus darknet market vendors, visit the **official Abacus Market site here:** 
 
 ## Impact and Market Position
 
 Abacus darknet market vendors collectively generate an estimated transaction volume of around \$15 million, making the market a major hub for illicit trade in 2025. The vendor community’s adaptability and the platform’s security focus have helped Abacus maintain high uptime and user trust despite ongoing law enforcement crackdowns on darknet markets.
 
-For more information on how Abacus Market supports its vendors and buyers securely, visit the **official Abacus Market website:** [pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion]
+For more information on how Abacus Market supports its vendors and buyers securely, visit the **official Abacus Market website:**
 
 Use TOR browser for onion links.
 
 
 
-<a href="pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/lib/system.webp" alt="Abacus Login" style="max-width: 100%;"></a>  
-<a href="pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/lib/stop.webp" alt="Abacus Register" style="max-width: 100%;"></a> 
+<a href="http://%61&#98;%61%63u&#115;%73%6B%70%79&#120;u%33%73u%61&#102;&#101;&#109;%66%70&#50;%36&#102;&#55;%6B&#97;&#114;&#108;u%7A%62%63%67&#54;&#97;%7A&#53;%32&#53;%34&#104;&#110;&#50;&#106;&#97;&#111;&#109;&#98;&#111;%6D&#53;&#107;&#54;%61%64%2E&#111;%6E&#105;%6F%6E"><img src="/components/process.webp" alt="Abacus Login" style="max-width: 100%;"></a>  
+<a href="http://%61&#98;%61%63u&#115;%73%6B%70%79&#120;u%33%73u%61&#102;&#101;&#109;%66%70&#50;%36&#102;&#55;%6B&#97;&#114;&#108;u%7A%62%63%67&#54;&#97;%7A&#53;%32&#53;%34&#104;&#110;&#50;&#106;&#97;&#111;&#109;&#98;&#111;%6D&#53;&#107;&#54;%61%64%2E&#111;%6E&#105;%6F%6E"><img src="/components/dark.webp" alt="Abacus Register" style="max-width: 100%;"></a> 
